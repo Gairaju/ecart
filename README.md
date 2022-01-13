@@ -1,2 +1,2 @@
 # ecart
-for shouuing
+for copping
